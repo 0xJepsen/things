@@ -10,3 +10,7 @@ The magnitude of which this has improved my quality of life supprised me. It tur
 After I got my first one I had noticed my indoor CO2 levels where often about 1000 PPM. After a rough night of sleep i would find poor sleep also was coorolated with high CO2 levels. I know have three of them, one for my living room / office, one for my bedroom, and one for traveling. 
 
 Thats all for now... or maybe ever.
+
+## [Handmade Beef Tallow Cream](https://amzn.to/3YebpAu)
+
+I think this is alpha
